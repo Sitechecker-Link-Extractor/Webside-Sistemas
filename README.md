@@ -1,0 +1,5 @@
+Kano, NigériaNígerArgélia
+الجزائرEspanhaFrança
+FranceReino Unido
+United KingdomGroenlândia
+Kalaallit Nunaat
